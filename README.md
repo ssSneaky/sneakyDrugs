@@ -5,4 +5,4 @@
        
        FR : récolte, traitement, vente (cannabis, cocaïne etc...)
        EN : harvest, treatment, sell (weed, coke...)
-       My Discord : Sneaky'#6666
+       My Discord : Sneaky'#0001
